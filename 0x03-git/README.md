@@ -1,0 +1,1 @@
+God will prosper us
